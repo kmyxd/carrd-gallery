@@ -8,13 +8,11 @@ The journey had been fairly smooth for Nora so far, or as smooth as it could be 
 
 Considering the heat of the desert during daytime she decided to camp there until the sunset, making use of the equipment the explorers had left. She quickly fell asleep and rested for a while. However, she was suddenly awoken by the sound of battle outside. Through her vision still blurred out from the light, she could see a blood elf fighting two large insects.
 
-Acting in instinct she grabbed her shield and ran to him but as she got there the blood elf, who now she recognized as her friend, Kalec'thur Sunwhisper, had already made quick work of the bugs.
+Acting on instinct, Nora grabbed her shield and hurried outside, ready to assist the stranger. However, by the time she reached him, the blood elf had already dispatched both creatures. She slowed to a stop, taking a moment to examine the unfamiliar warrior. His armor immediately caught her attention, particularly the crimson and gold colors that suggested he belonged to the Blood Knights of Silvermoon.
 
-"Kalec! Didn't think I would meet you around these parts!" she said.
+"Are you alright?" she called, lowering her shield slightly. "I heard fighting outside, but it looks like you had everything under control\!"
 
-Once more into the desert, he found himself chasing after a story that could be horseshit...but what else was a man to do?
-
-Once more into the sand of Uldum...another fucking week of knocking sand out of my boots afterwards. came the thought to his mind.
+Once more into the desert, he found himself chasing after a story that could be horseshit...but what else was a man to do? Once more into the sand of Uldum...another fucking week of knocking sand out of my boots afterwards. came the thought to his mind.
 
 Kalec sighed a little bit and gave the mount he rode upon a slight tap of his heels as the heavy hooves of the warhorse that he rode picked up the pace and carefully made their way down through a valley and over a small set of sand-drifts towards an Oasis in the distance.
 
@@ -22,19 +20,21 @@ In the distance he saw the pitch of a tent, propped up and supported by tie down
 
 "Hold here...you'll be too noisy," he spoke to his mount as he slid from the saddle and drew his blade, heavy and oblong with a design that the very Titans had seen fit to create, as he walked down towards the flat expanse outside of the pitched tent.
 
-As the last bits of insect ichor dripped from the heavy blade in his hands, Kalec turned for a moment and looked back over his shoulder as he heard a voice that not only seemed familiar but called out his name.
+As the last bits of insect ichor dripped from the heavy blade in his hands, Kalec turned and looked back over his shoulder at the sound of a woman's voice.
 
 He turned towards the voice but kept his eyes upon the large scarab-like beings that he had seen slipping through the sands earlier, now felled and leaking into the cooling grains.
 
 When his eyes finally looked towards the source of the voice, his eyebrows raised in surprise and a laugh escaped him.
 
-"Well...how the hell are you doing, Shieldmaiden?" Kalec stepped a foot back and did a small bow towards her before he continued, "I was about to walk over to whoever was in that tent and let them know they nearly had the worst bedbugs ever but it's certainly nice to see a friendly face as a surprise out here."
+"Well, now. A shieldmaiden in the middle of Uldum?" Kalec stepped back and offered her a small bow. "Kalec'thur Sunwhisper, at your service. Though Kalec will do just fine. I was about to warn whoever was staying in that tent that they nearly had the worst bedbugs imaginable."
 
-Nora giggled.
+Nora giggled at his remark, relaxing somewhat now that the immediate danger had passed.
 
-"I haven't seen any of these myself yet so maybe they like the smell of your blood." she says, while kicking one of the corpses to check if it was actually dead.
+"Nora Silvercrest. It's a pleasure to meet you, Kalec." She returned his greeting with a small nod. "I'm with the Knights of the Silver Hand, though I'm starting to think they sent me to the wrong place."
 
-"I've been sent here to deliver some orders to the explorers who were in that camp but couldn't find anyone. Have you seen them?" she asks.
+She glanced down at one of the fallen creatures and nudged it with her boot.
+
+"I haven't seen any of these myself yet. Maybe they just liked the smell of your blood. I've been sent here to deliver some orders to the explorers who were in that camp but couldn't find anyone. Have you seen them?" she asks.
 
 "My blood? I wear red for a reason...so you can't see me bleed," he cracked a smile and walked closer to where she stood.
 
@@ -60,7 +60,7 @@ He let out a long steady breath and then walked over towards the tent.
 
 He reached up and tapped the side of the tent looking at it for a moment then back to her, "Would you mind if I set up camp here with you? I'd rather not ride through the night out here if I don't have to considering I'm on something of a wild hawkstrider-chase."
 
-"Not at all!" she says while taking some of her stuff to make space.
+"Not at all\!" she says while taking some of her stuff to make space.
 
 "Though... I'm a bit hungry, you got anything? There's some wood over there, we can make a fire." Nora points over to some small wood pieces that were probably used by the explorers.
 
@@ -72,9 +72,11 @@ Kalec stood still as it approached, slowed to a trot and then came up to where h
 
 "There should be cooking utensils and a couple of pots in there if you would pull them out for me. I have some salt-pork, beans and spices...so I can at least whip something up that should be good enough for the two of us."
 
-"I had forgotten how you're so dependable. I only brought some berries and my stomach can't take any more of those!" Nora says while looking through the pack that Kalec handed her.
+"Well, aren't you prepared for everything?" Nora said with an appreciative smile as she rummaged through the supplies he'd handed her. "Meanwhile, I only thought to bring some berries, and I don't think my stomach can take any more of those\!"
 
-"I guess we can use this." she shows him a small to medium sized pot.
+She looked up at him again.
+
+"I'm starting to think meeting you was the luckiest thing that's happened to me on this mission. I guess we can use this." she shows him a small to medium sized pot.
 
 She gets up and gathers some of the wood pieces. After taking a brief look through the camp she finds a good spot and crouches to light up a fire. She manages, even though the wind bursts were trying to stop her from doing it. She had trained this extensively during her outdoor training sessions with her mentor back in Icecrown.
 
@@ -88,21 +90,21 @@ Through one of the bags he pulled out a bag of burlap and sat it off to the side
 
 "If you're going there, let me know if you see any trace of the explorers. Though I guess it could be difficult to see anything as the sky is already getting dark." Nora said.
 
-"And this please!" she smiles at him and hands him her now empty water pouch.
+"And this please\!" she smiles at him and hands him her now empty water pouch.
 
 He took the pouch and nodded, then turned to make the trek towards the nearby water source which left Nora alone with the fire at the tent.
 
 He was gone for perhaps twenty minutes, and in the dark that began to creep out over the desert around her there was a single flash of light from the direction of the Oasis that happened and then there was nothing.
 
+While Kalec was away, Nora occupied herself with his horse, who seemed surprisingly receptive to her attention. She had always been rather good with animals, and a few gentle strokes along his neck were enough to earn his trust.
+
+She briefly considered inspecting some of the equipment attached to his saddle, curious about what else the blood knight might have brought along. Ultimately, she decided against it. It would be terribly impolite to rummage through the belongings of someone she'd only just met, especially after he'd been so generous with his provisions.
+
+Instead, she remained beside the horse for a little longer, occasionally glancing toward the oasis to see if Kalec was returning.
+
 Kalec came back shortly afterwards with two large waterskins filled with water, along with her waterskin and the pail that he had taken with him.
 
 "I have good news and...not so good news," he responded as he returned to camp. There was little time wasted as the pot she had uncovered was quickly filled with water, a lid placed upon it and then it was nestled into the fire as it burned to get the water going quickly.
-
-While he was gone, Nora took her time to peek through Kalec's supplies that were still attached to his horse. She always had a calming presence to animals so the blood knight's horse was easily charmed by a few pets to his neck.
-
-Even after a good ten minutes of looking she couldn't find anything really out of the ordinary, which was pretty upsetting as she wanted to prank him for some good laughs. Disappointed, she quickly put all his stuff back in the bag.
-
-After a few more minutes, Kalec returned with the water.
 
 "So you've found them? Or..." she approaches him and asks while dusting off his clothes with her hand.
 
@@ -128,11 +130,23 @@ He lifted a flap and looked into it for a moment before a journal came out and h
 
 He took up what he had looked for in his journal and then glanced over Nora's map for a moment as he squinted his eyes, "Ah...been awhile since I've had to read the human tongue...but I think this should be it," and he made a quick mark on the map along with an indicator of where they were currently at the camp.
 
-Nora takes a good look at the blood knight, as much as the light of the fire let her. It was definitely enough to give her some pretty naughty thoughts, as she remembered their last encounter in Northrend. This time though, she didn't want to let the cold take over.
+Nora found herself studying the blood knight as he examined her map, her attention wandering away from the markings and toward the man himself. She hadn't paid much attention to his appearance earlier, when there had been dangerous creatures to worry about, but the firelight was doing him quite a few favors now.
 
-As Kalec was trying to identify their location on the map despite the fact that he could barely see it, Nora pounced at him from the back.
+She had only known Kalec for a bit, and yet he'd already proven himself surprisingly pleasant company. He was confident, knowledgeable, generous, and possessed a rather entertaining sense of humor. Not to mention that he was quite handsome.
 
-"Actuallly..." said Nora while she hugged him from behind and began running her hands through his now exposed chest and whispered to his long elf ears.
+Nora wondered whether she was simply allowing the loneliness of her journey to get the better of her. Whatever the explanation, she was beginning to find it increasingly difficult to concentrate on the mission. Perhaps spending the evening with him wouldn't be such a terrible idea after all.
+
+Kalec glanced up from the map, catching her eyes lingering on him rather than the markings he'd made. A knowing smile spread across his face.
+
+"Something wrong with the map?" he laughed. "I have to admit, Nora, you're making it rather difficult for me to concentrate on these directions, too. A man can only pretend not to notice a beautiful woman for so long." 
+
+Nora hadn't expected him to notice her staring, much less call her out on it. She felt a little warmth creep into her cheeks, although she couldn't help smiling at his remark. So he'd been thinking about her that way, too? That was certainly encouraging.
+
+Nora considered whether she was being terribly forward. She usually needed more time to grow comfortable with someone, but something about the blood knight made her feel unusually at ease. Besides, he had practically invited her to flirt back, hadn't he?
+
+After a moment's hesitation, she decided to stop overthinking it. Moving quietly behind him, she slipped her arms around his shoulders and leaned closer, letting her hands rest against his bare chest.
+
+"Actually..." she began, bringing her lips close to one of his long ears.
 
 "How about we enjoy the night first? It's not like we can leave in the middle of the night anyway."
 
@@ -142,7 +156,7 @@ Kalec was certainly surprised by the sudden initiative of Nora's, but he didn't 
 
 There was a shiver that she would be able to feel run through him. If it was from the chill settling into the air or from her sudden grasp upon his skin that left her fingertips moving over taut muscle and the occasional scare it was hard to certainly hard to tell.
 
-He leaned back into her just a little bit, his head cocked some to the side and a slow smile stretched over his lips as he looked up at her, "So...we're skipping dinner then, and just going straight to dessert? My my, Nora...I'm certainly glad to see that you missed me more than a little."
+He leaned back into her just a little bit, his head cocked some to the side and a slow smile stretched over his lips as he looked up at her, "So...we're skipping dinner then, and just going straight to dessert? My, my, Nora...and here I thought you only wanted me around for my cooking and knowledge of the desert."
 
 He reached forward and pulled the boiling pot of water out of the fire and pushed it to the side before he let out a soft laugh and gestured towards the tent, "Ladies first..."
 
@@ -156,11 +170,11 @@ He was outside of the tent for a bit longer, out of sight of the open flap as it
 
 Moments just before she might think he had taken too long, he stepped into the tent completely nude with two steaming mugs of tea, one of which he held out towards her.
 
-He was beefy, as she might remember, his generous length hanging down between his legs which moved with a slight sway as he adjusted the weight from one foot to another. The stark white fluff of his pubic hair quite distinct from the normally less than hair elven men others might be familiar with.
+It was certainly the first time Nora had seen quite so much of him, and she could hardly conceal her surprise. He was beefy, his generous length hanging down between his legs which moved with a slight sway as he adjusted the weight from one foot to another. The stark white fluff of his pubic hair quite distinct from the normally less than hair elven men others might be familiar with.
 
 "Something to help keep you warm?" He grinned a little, letting the innuendo set in.
 
-"I had forgotten how shameless you are. You got yourself ready really quick, huh?" she says as she takes off her dress.
+"You're rather shameless, aren't you?" Nora laughs. "And here I thought blood knights were supposed to be all serious and intimidating\!" she says as she takes off her clothes.
 
 The light was dim in the tent but it was easy to see Nora had been working out. Her body figure was absolutely on point, Kalec could now see the full glory of her perfectly rounded breasts and toned midriff. He couldn't see it but her nipples were already hard, even more now that she had been reminded of his enormous cock. Not much else was visible as the light of the fire outside wasn't bright enough.
 
@@ -168,9 +182,9 @@ She took the mug off his hand, and took a sip."Ugh... this is awful. What's this
 
 As she would take a sip of the tea, herbal though it was a tingling sensation would settle on her lips and a gentle warming feeling would spread throughout her chest.
 
-"Right...I always forget you humans just wouldn't know something good and tasty if it fell on them from the sky!"
+"Right...I always forget you humans just wouldn't know something good and tasty if it fell on them from the sky\!"
 
-He shook his head for a moment and then glanced down at himself before he looked back over at her, " And I do have -some- shame you realize...just not much. You did say to make myself comfortable after all...don't I look it to you?"
+He shook his head for a moment and then glanced down at himself before he looked back over at her, " And I do have \-some- shame you realize...just not much. You did say to make myself comfortable after all...don't I look it to you?"
 
 "Haha, yes you do." she says as she sits down on her feet. She then taps her lap as if pointing out to Kalec she wanted him to rest his head there.
 
@@ -218,11 +232,11 @@ The slightly salty but taste of his pre-cum slowly working its way out of him th
 
 "At least we won't be skipping dinner," he murmured against her pussy before he opened his mouth and began to lick her deeply.
 
-"Definitely not!" she said.
+"Definitely not\!" she said.
 
 Nora put her hands on each of his thighs and went all in on his cock, giving him the sloppiest blowjob she had ever given. She would slowly drag of her wet tongue over his majestic shaft, gasping a little bit for air with each motion. Even doing this, Nora only had about half of his cock in her mouth.
 
-"Don't remember you being this big!" she said.
+"You’re so big…" she said.
 
 Between the sounds of her moans and saliva going on, she could still hear the sound of the wood burning outside.
 
@@ -230,13 +244,11 @@ She glanced at the fire checking for shadows as she was still trying to maintain
 
 Kalec's arms came up and his hands grasped at the small of her back and the soft curve that began the soft curve of her ass. His fingertips dug into her skin and he pulled her tighter to him as his face dug in even further to her slick wet pussy.
 
-The tip of his tongue flicked up and down her folds teased around her clit and then dove deep to taste at the wellspring of her nectar. He only drew his face back to respond to her, "Still the same size... But to be fair, you didn't taste me then just rode your way to a fine mess."
+The tip of his tongue flicked up and down her folds teased around her clit and then dove deep to taste at the wellspring of her nectar. He only drew his face back to respond to her, "Well, I suppose that's one way to make a first impression," he teased.
 
 As her mouth came down, even if she only did get herself halfway to taking all of him, his hips bucked a little and his thighs twitched from the raw pleasure that shot through him from her sloppy blowjob.
 
-"You're really good at that, you know? I guess it helps when you're literally hundreds of years old." she said.
-
-"But I think I'll need to take a good measure of it again to make sure."
+"You're really good at that, you know? I guess it helps when you're literally hundreds of years old." she said. "Still, I think I'll need to see for myself just how impressive you are."
 
 Nora then moved her ass forward and lifted it just above the height of his throbbing cock. She then grabbed it with her right hand and gently put inside her, letting out a faint moan as he entered her. Kalec couldn't see it but she had the biggest grin on her face.
 
@@ -246,9 +258,9 @@ Nora then moved her ass forward and lifted it just above the height of his throb
 
 "Fffffffuuuuuck," he gasped out as she settled down upon him and he felt the vibrant wet friction of her inside swallow him up. Is length throbbed and even twitched a little bit within her soft confines.
 
-"Oh I think this is so, so much better then what I had envisioned my desert excursion was going to be too!"
+"Oh I think this is so, so much better then what I had envisioned my desert excursion was going to be too\!"
 
-Nora starts moving up and down the length of his cock, now taking the whole thing deep inside her. Her movement is slow at first, as she wants to feel every inch of him. And every time it enters her deep, she can feel it hit past her cervix.
+Nora starts moving up and down the length of his cock, now taking the whole thing deep inside her. Her movement is slow at first, as she wants to feel every inch of him.
 
 "This is just my way of showing you my appreciation for your help." she says, quickly looking back at him and blowing him a kiss.
 
@@ -296,15 +308,15 @@ Hearing what Kalec just said to her felt amazing. That was indeed what she wante
 
 With his cock still pulsating inside her, she moved her legs one at a time in order to get in a crouching position and continued to push herself into him. She tried to keep a grin on her face but with every penetration, every time the tip of his cock would touch her inner wall she would make a gasping face while looking directly at him.
 
-"Your cock feels amazing, this is way better than last time."
+"Your cock feels amazing."
 
-"Last time...we were trying not to freeze to death," he laughed a bit, and the push from the laugh in his stomach made his length twitch inside of her as she came down on him. His hips rolled with hers, keeping the angle sharp and heavy for her as well.
+He laughed a bit, and the push from the laugh in his stomach made his length twitch inside of her as she came down on him. His hips rolled with hers, keeping the angle sharp and heavy for her as well.
 
-With her arms now supporting herself on his chest, he sat up a little bit and raised his chin some so that he could lean in and put a soft peck to the tip of her nose, "And I'll take that compliment, young-lady. I almost hope those Explorer's guild goons show up and catch us like this. It's not every day I have a beautiful young Paladin friend trying to ride the seed out of me after all!"
+With her arms now supporting herself on his chest, he sat up a little bit and raised his chin some so that he could lean in and put a soft peck to the tip of her nose, "And I'll take that compliment, young-lady. I almost hope those Explorer's guild goons show up and catch us like this. It's not every day I have a beautiful young Paladin friend trying to ride the seed out of me after all\!"
 
 She gives him a soft slap to the face and laughs, while still keeping up the pace.
 
-"I hope not! Being caught like this like during a mission wouldn't be good if I want to get a promotion!" she says.
+"I hope not\! Being caught like this like during a mission wouldn't be good if I want to get a promotion\!" she says.
 
 Being reminded of her mission, she takes a quick look of what was visible of the outside fire through the fabric of the tent. But seeing nothing out of the ordinary she looks back at Kalec, who was clearly looking at her bouncing breasts.
 
@@ -344,7 +356,7 @@ Inside of her, though the walls of her pussy had stopped twitching and squeezing
 
 "But we're not done yet, remember? I want you to fill me up. I want to please you so bad I can’t think about anything else."
 
-"You're free to use me as you like, like before." she said, now looking at him with a pleading face.
+"You can take the lead now, if you'd like," she said, now looking at him with a pleading face.
 
 Kalec looked over her for a moment and shifted up from where he was at so that his knees were firmly planted in the bedroll. Nora would slip down, his length to pop from her insides quickly with a wet noise as he would split them up for a moment.
 
@@ -368,7 +380,7 @@ Kalec caught the look that she had given him and there was a slight shudder that
 
 He glanced down, watched how her pussy gripped at his length for a moment and then looked up at her with an expression of surprise before he repeated the process once more. Strong and heavy strokes made him sink deep inside of her in that position.
 
-"Well...it seems that the hottest part of you keeps hugging me as I go, that's so good!"
+"Well...it seems that the hottest part of you keeps hugging me as I go, that's so good\!"
 
 The set of movements were a dance of sensations. Her thigh would feel the drag of his balls as he moved, letting them bounce against her before they slid away. Her calf muscle pulled taught against his firm chest before he slipped back once more. The thickness of his cock as it stretched her slick inner walls and tapped right up against the deepest point of her limits.
 
@@ -384,7 +396,7 @@ Sunwhisper made her feel full and the fullness was both painful and satisfying.
 
 He pressed again and again, her pussy pushed ever so wide, her clit slapped by his balls. At this point, the shieldmaiden’s slit was flowing like a river of girl juice, coating his cock and balls in her love nectar. A rhythm of tacky noises echoed off as his manhood rubbed against her pleasure spot repeatedly. The pain began to ease a little, being overtaken by a sensation of warm tingling need.
 
-“Fuck!” she blurted out as she arched her head backwards.
+“Fuck\!” she blurted out as she arched her head backwards.
 
 "Keep going." she panted.
 
@@ -398,7 +410,7 @@ He leaned into her some, forced her leg to stretch back a little bit, but his ai
 
 The slapping sound of each shove echoed around the tent, though neither was aware of it. Nor were they aware that they were no longer alone in the camp. Whoever it was that was watching them outside could likely hear the telltale sounds of their intimacy. But for the shieldmaiden, the whole world was reduced now to this one place, to this one moment, to this one embrace.
 
-"Kalec…" Nora gasped between thrusts, "This is- hah- good! Why is it- Mmmh!- you're this good? Ever since our last… encounter in the snow… I've had dreams- hnn- like this! I t-think of them often." she struggled to say between her moans.
+"Kalec…" Nora gasped between thrusts, "This is- hah- good\! Why is it- Mmmh\!- you're this good?" she struggled to say between her moans.
 
 The rhythm of their thrusts, their breaths, even the very beating of their hearts had become one. Sweat poured from each as they became like beasts. They had given up speech at this point. The sublime climax crept upon both of them now. The shieldmaiden sucked a sharp breath in through her teeth anticipating the warmth of her reward.
 
@@ -444,7 +456,7 @@ Between them, his length slowly slipped from inside of her body, the tip fell do
 
 Nora giggled and pushed his chest softly.
 
-"I'm serious! This could be dangerous. Besides, I very much doubt this will be our last meeting." she said with a smirk.
+"I'm serious\! This could be dangerous. Besides, I very much doubt this will be our last meeting." she said with a smirk.
 
 The shieldmaiden gave him a short kiss.
 
@@ -464,7 +476,7 @@ He made a gesture with his other hand for the process to repeat as he held the s
 
 His voice lowered a little bit as he shifted while on his knees, the sword beside him left alone for a moment as he looked at her curiously for a moment before he managed to get her second sandal on in due course. "We going to run out of here, charge into the situation with fury and purpose?"
 
-“Shhh!” she gave him a shocked look.
+“Shhh\!” she gave him a shocked look.
 
 She grabbed her silken shirt from the floor nearby, lifted the delicate material and slipped it over her head, letting it glide down her body like a curtain falling at the end of a show. She adjusted the straps on her shoulders and leaned towards him.
 
@@ -490,7 +502,7 @@ A snarling gibberish sound came from outside the tent as the light enveloping he
 
 Her sky blue eyes squinted searching for the onlooker but could not find anyone. She turned back to Kalec and shrugged her shoulders.
 
-BAM!
+BAM\!
 
 Nora was not sure what happened. It was a burst of pain on the back of her skull, a bright light shot through her eyes and a deafening thud that scaled down to horrendous ringing in her ears.
 
@@ -652,19 +664,11 @@ Nemesis was no different, it's why you might catch the subtle red-gold glow that
 
 Kalec remained quiet for a little while longer, "Blood Knights are an interesting lot, I guess you could say. After the Sunwell was re-ignited quite a lot of us turned to worship and praise the Light as a gracious savior once more like they had in the old days." He paused and looked back over his shoulder at her for a moment before he turned back to the stretch of scrabble and dune ahead, "I am not one of them."
 
-Nora listened intently as Kalec recounted the history of Nemesis, the story laced with the shadows of the Scourge and the early days of the Blood Knights. However, when Kalec revealed that he didn't follow his brethren in their renewed worship of the Light, Nora stiffened slightly. Her grip tightened around his waist.
+Nora listened, her arms still wrapped around his waist. His admission caught her somewhat off guard. She had always understood the restoration of the Sunwell to be a blessing for the blood elves, something that had helped their people recover from the terrible devastation they had endured.
 
-He was a Blood Knight who didn't embrace the Light. What did he embrace? In her mind, the Sunwell was more than just a source of energy. It was a symbol of hope, of renewal, of forgiveness.
+"Really? But I thought the Sunwell's restoration meant a new beginning for your people." She hesitated, considering her words. "I suppose I always assumed the Blood Knights would be grateful to the Light for that. Why do you see things differently?"
 
-"Why not? The Sunwell saved your people, Kalec. It quenched their thirst, healed the land.
-
-To turn away from the Light, after such a gift… I don't understand.” She let the words hang, allowing him time to respond.
-
-"You have to understand, Nora. The Sunwell was corrupted by the Scourge and laid to ruin.
-
-It's loss, the loss of our King and the noble families, leaving only the prince and his advisors...it almost broke my people.
-
-We endured though, and we found our way to counter that unimaginably terrible loss and grow stronger. We began to thrive again, and hone the power that we took as a means to exact retribution on those who had wronged us. Then, just as we were so sure of where we were headed, right as everything seemed to be lining up and we would find our way to a glorious purpose again we were betrayed. We were shown that the very man we had heeded the wishes of, our savior who had left us to find the path forward, had been twisted and turned. The very Sunwell that we had cherished and lost was almost used to bring the Legion to Azeroth..."
+"You have to understand, Nora. The Sunwell was corrupted by the Scourge and laid to ruin. It's loss, the loss of our King and the noble families, leaving only the prince and his advisors...it almost broke my people. We endured though, and we found our way to counter that unimaginably terrible loss and grow stronger. We began to thrive again, and hone the power that we took as a means to exact retribution on those who had wronged us. Then, just as we were so sure of where we were headed, right as everything seemed to be lining up and we would find our way to a glorious purpose again we were betrayed. We were shown that the very man we had heeded the wishes of, our savior who had left us to find the path forward, had been twisted and turned. The very Sunwell that we had cherished and lost was almost used to bring the Legion to Azeroth..." 
 
 His voice was level, but there was heat in his words. A righteous fury that he seemed keen to hold at bay for her sake more than his own it would seem.
 
@@ -674,11 +678,11 @@ His voice was level, but there was heat in his words. A righteous fury that he s
 
 She'd feel him draw in a long breath as if to steady himself by the way that she had tightened her grip upon him, "I'm not alone, but the leadership of the order don't care to have that discussion. So I and a few others are no longer required to provide training and teaching to the younger Knights anymore. We are considered Errant, but still remain loyal to our people all the same."
 
-Nora loosened her grip slightly. Perhaps she had judged him too harshly.
+Perhaps Nora had judged him too harshly.
 
-"I didn’t mean to sound judgmental. I'm sorry, Kalec." she admitted.
+"I didn’t mean to sound judgmental. I'm sorry, Kalec." she admitted. Although she couldn't entirely agree with his understanding of the Light, she was beginning to understand why he felt that way.
 
-Even in her own life, she had seen moments where the Light had seemed distant and unresponsive. His rejection of it was understandable.
+Even in her own life, she had seen moments where the Light had seemed distant and unresponsive. His refusal to worship it was understandable.
 
 Even though she didn’t think of the Light as a mere non-sentient force as he did, to be pushed aside from the Order for holding a different perspective, especially after all he had been through, seemed unfair.
 
@@ -700,17 +704,17 @@ The salty air hit their face. They had reached the coast. The shieldmaiden slid 
 
 Shortly after, the two of them approached a wooden platform that looked like a makeshift airfield. One goblin with oversized goggles and a manic grin hopped out of a contraption that looked like a mechanical dragonfly.
 
-"Well, well, well! What have we here? Tourists lost in the desert? Or perhaps adventurers seeking the thrill of flight?" the goblin squeaked, rubbing his hands together.
+"Well, well, well\! What have we here? Tourists lost in the desert? Or perhaps adventurers seeking the thrill of flight?" the goblin squeaked, rubbing his hands together.
 
-"Evax Oilspark, at your service! And this, my friends, is the safest aerial transportation around here, guaranteed to get you where you need to go... eventually!"
+"Evax Oilspark, at your service\! And this, my friends, is the safest aerial transportation around here, guaranteed to get you where you need to go... eventually\!"
 
 "We need to get to Gadgetzan." Nora said. "How much?"
 
-Evax's grin widened, revealing a few gold teeth. "Gadgetzan, eh? Prime destination! For you... only five hundred gold pieces!"
+Evax's grin widened, revealing a few gold teeth. "Gadgetzan, eh? Prime destination\! For you... only five hundred gold pieces\!"
 
-Nora's jaw dropped. "Five hundred? Are you serious? That's straight up robbery!"
+Nora's jaw dropped. "Five hundred? Are you serious? That's straight up robbery\!"
 
-"Supply and demand, sweetheart! Besides, this beauty is not just a machine; it's an experience! Think of the sights! The sounds! The potential for a fiery crash that you'll never forget!"
+"Supply and demand, sweetheart\! Besides, this beauty is not just a machine; it's an experience\! Think of the sights\! The sounds\! The potential for a fiery crash that you'll never forget\!"
 
 Knowing she was being taken advantage of, Nora looked at Kalec wondering if had a better idea.
 
@@ -730,7 +734,7 @@ His other hand opened just enough for a glint of light to catch from something t
 
 "Do that and you can take this as a bonus for getting her safely back to where she wants to go."
 
-"Alright, alright! No need to get the Bilgewhizzles involved! One hundred gold!" said the goblin, looking a little nervous. “And the ruby.”
+"Alright, alright\! No need to get the Bilgewhizzles involved\! One hundred gold\!" said the goblin, looking a little nervous. “And the ruby.”
 
 He turned and went fussing over the dragonfly contraption, muttering about fuel injectors and stabilizer fins. Nora smiled and thanked Kalec by reaching out and squeezing his arm gently.
 
