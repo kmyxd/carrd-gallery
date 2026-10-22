@@ -462,6 +462,138 @@ When the orgasm finally subsided, she turned her head just enough to brush a kis
 
 “Good boy,” she whispered.
 
+## Chapter 8
+
+By the time Nora finally departed Northshire Abbey, the sun was already beginning its descent toward the distant hills of Elwynn Forest. Her duties had been fulfilled, the priest's endless list of chores had been completed, and the rather peculiar monk she had encountered that morning had gone his own way. 
+
+The Light only knew what had possessed her to behave so boldly. That mysterious cider certainly deserved some of the blame, although she couldn't quite convince herself that everything had been its doing. Perhaps there was a side of herself she had never properly explored, one that had spent far too many years buried beneath discipline, responsibility, and the expectations of the Silver Hand. Whatever the explanation, it had certainly made for a memorable afternoon.
+
+Still, life had a habit of moving forward regardless of how interesting its little distractions might be. Nora returned to Stormwind, resumed her duties, and allowed the familiar rhythm of her daily routine to reclaim her attention.
+
+~
+
+Several weeks had passed since that rather extraordinary afternoon in Northshire Abbey, and for once, Nora Silvercrest had absolutely no intention of spending her evening fulfilling someone else's errands. Stormwind's Mage Quarter was positively alive with celebration that night. Colorful magical lanterns floated above the cobblestone streets, bathing the surrounding buildings in shades of violet, blue, and gold. Mages, apprentices, merchants, and visitors from every corner of the kingdom had gathered to enjoy the festivities, transforming the entire district into something resembling an enormous outdoor ballroom.
+
+Nora had received an invitation earlier that week and, after some consideration, decided that she had earned herself a proper evening of leisure. No armor, no sword, no errands to deliver. Tonight, she intended to enjoy herself, and she had certainly dressed for the occasion.
+
+Her usual attire had been replaced by a short but elegant dress that hugged her figure beautifully. The one piece garment was pretty daring, with a plunging neckline that left her shoulders exposed and slits on both sides that rose to about mid thigh. A touch of makeup accentuated her blue eyes, though she had kept it subtle. The whole outfit was considerably more skimpy than anything she would have worn on official Silver Hand business, which was, of course, precisely the point.
+
+She caught her reflection in the window of a nearby shop and paused briefly to admire herself, adjusting the fabric around her waist. Not bad, Nora. Not bad at all.
+
+At one point, a particularly enthusiastic group of apprentices sent a flock of shimmering butterflies fluttering over the crowd, prompting applause from the spectators below. One of butterflies settled briefly on Nora's shoulder before dissolving into tiny golden sparks. She laughed softly, brushing the remaining glitter from her skin. It was wonderful to see Stormwind like this.
+
+Eventually, Nora found herself approaching a refreshment table beneath a canopy of floating candles. An assortment of wines, fruit punches, and sweet beverages had been arranged there for the guests. Naturally, her attention went straight to the apple cider.
+
+Glass in hand, Nora found a comfortable spot in the corner. From there, she could watch the dancers moving between the lanterns, and for a moment, she considered joining them. Unfortunately, dancing alone wasn't nearly as enjoyable as dancing with someone else, and she hadn't yet found anyone who particularly caught her interest.
+
+Nora was considering whether to approach one of the gentlemen herself when a familiar voice interrupted her thoughts. 
+
+"Would the lady care for a dance?" She turned toward the speaker, and her eyes widened in surprise. 
+
+"Sash?" Well, of all the people she might have expected to encounter tonight, he was definitely not one of them.
+
+She accepted his offered hand with a little laugh and allowed him to escort her onto the dance floor. It was a pleasant change from their first meeting, when their introduction had consisted largely of trading insults before attempting to beat each other senseless. Fortunately, Sash proved considerably more agreeable as a dancing partner than he had been as an opponent. Their conversation eventually turned toward Northshire Abbey and Nora was delighted to discover that Sash hadn't entirely forgotten the outcome of their little duel. 
+
+"Oh, don't tell me you're still upset about losing!" she teased, laughing as he guided her through another turn. "I thought we'd settled that matter quite thoroughly!" Apparently, he disagreed. In fact, he had been hoping for an opportunity to challenge her again. 
+
+"A rematch? Tonight?" She looked down at herself, then back at him in disbelief. "Sash, have you seen what I'm wearing? I can barely walk in these heels, much less fight in them!" Nevertheless, the idea was rather tempting. She had enjoyed their previous confrontation, and there was something amusing about the thought of defeating him for a second time. Especially now that she wasn't under the influence of some suspicious beverage.
+
+Sash suggested making a wager of it and her curiosity was thoroughly awakened. If he won, she would owe him a favor. If she won, he would owe her one instead. The possibilities were rather entertaining, considering how obedient he'd been during their previous encounter. 
+
+"Okay, but don't complain when you lose again. I won't be nearly as merciful this time!" she said, extending her hand. 
+
+With that settled, the two excused themselves from the festivities and made their way toward a quieter place, safely removed from the crowds. Nora wasted little time preparing herself.
+
+"Now, remember. No weapons, no serious injuries, and absolutely no complaining afterward!" She raised her fists, smiling. "Ready when you are!"
+
+The rematch proved considerably more challenging than Nora had anticipated. Sash had clearly been practicing. His movements were sharper, his reactions quicker, and several of the tricks that had worked so beautifully during their first encounter proved far less effective this time. Fortunately, Nora had a few tricks of her own. Their contest continued for several minutes, with neither combatant managing to gain a decisive advantage. Nora found herself laughing between exchanges, genuinely enjoying the opportunity to test her abilities against someone capable. 
+
+Eventually, however, Sash made a mistake and Nora seized the opportunity. She caught his advancing arm, pivoted around his momentum, and swept his supporting leg out from beneath him. The man hit the ground and before he could recover, Nora stepped forward and planted her foot across his face.
+
+"Well, well, well. Would you look at that!" She stood triumphantly above him, one hand resting on her hip. "That's twice you've challenged me and lost!" Strangely enough, the monk didn't appear particularly disappointed. If anything, the expression on his face suggested that he was enjoying his predicament considerably more than Nora would have expected from someone who had just suffered another humiliating defeat.
+
+"You're enjoying this, aren't you?" She shook her head, keeping him there for another moment before finally withdrawing her foot and offering him a hand. "Come on, you. I think you've had quite enough humiliation for one evening."
+
+As it happened, Sash had another suggestion. Perhaps they could continue their reunion over a couple of drinks at a nearby inn? He knew a pleasant tavern not far from the Mage Quarter and surely they had earned themselves some refreshments. Nora quickly accepted.
+
+## Chapter 9
+
+The tavern was pleasantly warm, filled with the comforting smells of roasted meat, freshly baked bread, and various alcoholic beverages. Nora found herself rather enjoying the atmosphere. It was considerably quieter than the celebration outside, allowing the two to converse without having to compete with the music. They secured a small table near the fireplace, and before long, Nora had settled comfortably into her chair, crossing her legs as she listened to Sash recount some of his recent adventures. She was genuinely interested in hearing about his training, although she couldn't resist occasionally reminding him that all those additional hours of practice hadn't been enough to secure his victory. 
+
+"Perhaps you should consider training with the Silver Hand instead," she suggested with an innocent smile.
+
+Their conversation continued in this fashion for some time, until the innkeeper approached their table carrying a glass bottle filled with a golden liquid. He placed it before Nora with a smile, explaining that someone had anonymously paid for the drink and requested that it be delivered to the lovely blonde lady. 
+
+Nora blinked in surprise. "For me? How very kind! Who should I thank?" 
+
+Unfortunately, the man could offer no name, only that the mysterious benefactor had insisted on remaining anonymous. Nora looked around the tavern, curious, wondering whether she had attracted a secret admirer during the evening's festivities. 
+
+Well, whoever they were, they certainly had good taste! Apple cider was her favorite! She thanked the innkeeper and uncorked the bottle, taking a sip. Smooth, perfectly sweet, almost suspiciously familiar, actually. 
+
+Nora paused, staring at the bottle. Now, where had she tasted this before? It was in that moment that the realization struck her. Surely it couldn't be the same cider? What were the chances?
+
+Their conversation carried on regardless, and by the time the tavern began filling with louder and enthusiastic patrons, Nora had grown quite comfortable in Sash's company. They decided to move somewhere quieter, upstairs.
+
+A little later, Nora found herself entering a modest but comfortable room on the tavern's upper floor. A large bed occupied one side of the chamber, accompanied by a wooden wardrobe and a small table. Nora walked toward the window behind the bed, which was covered with flowers, briefly admiring the view of Stormwind's rooftops.
+
+Nora smiled, placing her hands on her hips. "Well, I believe you still owe me a favor." She took a few steps toward him. "Have you given any thought to how you intend to repay your debt? Because I certainly have."
+
+Without waiting for much of an answer, she placed both hands against his chest and gave him a playful push toward the bed. Once he had fallen backward onto the mattress, Nora slipped off her heels and climbed onto the bed after him. She settled astride his waist, resting her hands against his chest as her short dress gathered around her thighs.
+
+"Now then..." she murmured. "Since you were so terribly determined to have another rematch, I think it's only fair that your queen gets to enjoy her victory."
+
+Nora remained where she was for a moment, her hands resting against Sash’s chest as she settled her weight over him. Then she straightened and reached for the hem of her dress. She gathered the fabric between her fingers and slowly drew it upward, easing it over her waist and shoulders before finally slipping it over her head. 
+
+She then tossed it toward the far corner of the room, where it landed beside her discarded heels. By the time she turned her attention back to Sash, he had propped himself up on his elbows, watching her every movement. Nora tugged his shirt upward, and he obligingly raised his arms, allowing her to pull it over his head and send it flying like she did with her dress. 
+
+His trousers came next. Bare now, she settled beside him and wrapped one hand around his cock. It was already thickening, but she stroked him anyway, from base to tip and back again. Nora kept her eyes on his face while her hand worked.
+
+“Still soft for someone who was so eager to lose to me again...” she said. “We’ll fix that.”
+
+A few more strokes and he was fully hard. She gave him one last slow pump, released him and swung a leg over his hips. This time she lowered herself carefully, guiding him with her right hand until the head of his cock pressed against her. She sank down, taking him deep, and stayed there for a second once he was fully seated.
+
+Sash groaned with pleasure. Nora caught both of his hands and laced her fingers through his, pinning them flat to the mattress on either side of his body. She began to ride, slowly at first, rising until only the tip remained inside her before she dropped back down. Each time she did it, she squeezed his hands a little tighter...
+
+“That’s better.” She kept the pace measured for a while, letting him feel her clenching. His hips twitched upward once and she immediately stopped, holding herself still until he was still again.
+
+“No,” she said. “You don’t move unless I tell you to. You lie there and take it. Understand?”
+
+“Yes,” he responded.
+
+“Yes what?”
+
+“Yes, my queen.”
+
+Nora smiled and started again, a little faster this time. The bed frame creaked. She watched his face, the way his eyes kept trying to close, and tightened her grip on his hands so he couldn’t look away.
+
+“Eyes on me,” she said. “I want you looking. You lost the duel and the rematch. Now you lose this too.”
+
+She picked up speed. The slap of her thighs against his grew louder. Sash’s groans turned rougher, less controlled. Nora felt him thickening inside her and ground down harder on the next stroke, circling her hips once she was fully seated.
+
+“I can feel it. You’re throbbing. Trying so hard not to come yet because your queen hasn’t given you permission.”
+
+She resumed the movement, never letting go of his hands. Her breasts bounced with each downward motion. Sash’s breathing had gone ragged. His arms strained under her grip but he didn’t try to free them.
+
+“That’s it,” Nora said. “You’re going to come while I ride you like this, and you’re going to thank me for it when you’re done. Say it.”
+
+“Thank you... my queen...” he gasped.
+
+She laughed and drove down harder. Sash’s hips jerked once, then again. Nora felt him swell and pulse.
+
+“Go on,” she told him. “Fill your queen. Do it now.”
+
+He came with a choked sound, with his hips lifting off the mattress as he spilled inside her. The sensation pulled Nora over a moment later. She ground down and stayed there, with her thighs trembling. Only when both of them had gone still did she lean to the side and let him free.
+
+“Good boy, you can rest now.” she whispered.
+
+As the last of her excitement faded, Nora felt an almost peculiar sense of clarity wash over her, as though some invisible veil had finally been lifted from her mind. 
+
+She blinked, looking down at Sash before glancing around the unfamiliar bedroom. What have I done? Her cheeks turned red as the events of the evening replayed in her head.
+
+She certainly remembered enjoying herself, but goodness, she hardly recognized the woman she'd been for the past hour! Perhaps she simply had an adventurous side? Who knows. 
+
+Outside, the festivities continued for the rest of the night. And somewhere downstairs, a hooded stranger retrieved what was left of that special bottle of cider that was forgotten over their table.
+
 ---
 
 **END.**
